@@ -1,1 +1,1 @@
-python is hard
+I do everything here for fun
